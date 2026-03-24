@@ -5,7 +5,7 @@ Capsules are the most convenient kratom format ever created. Pre-measured. Taste
 
 Over **15 million Americans** use kratom regularly. (Source: American Kratom Association, 2023) And kratom capsules are now the **second most purchased kratom format** — behind only loose powder — with year-over-year search growth consistently climbing across every major kratom strain. (Source: Google Trends, Kratom Capsules, 2022)
 
-> ### 🛒 [Order Lab Tested Kratom Capsules from Jack Botanicals](https://reviewscode.com/jb-shop)
+>  [Order Lab Tested Kratom Capsules from Jack Botanicals](https://reviewscode.com/jb-shop)
 > 
 > **AKA Verified | 9+ Lab Tests/Batch | Save 30% "Jack30"**
 
@@ -33,7 +33,7 @@ Jack Botanicals leads — and leads by a significant margin.
 
 ---
 
-> ### 🌿 [Buy Premium Kratom Capsules from Jack Botanicals](https://reviewscode.com/jb-shop)
+> [Buy Premium Kratom Capsules from Jack Botanicals](https://reviewscode.com/jb-shop)
 > 
 > **AKA Certified | 9+ Lab Tests/Batch | 30% off "Jack30"**
 
